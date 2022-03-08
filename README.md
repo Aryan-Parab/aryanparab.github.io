@@ -1,2 +1,0 @@
-# aryanparab.github.io
-Portfolio
